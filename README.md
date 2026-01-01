@@ -40,10 +40,9 @@
 ---
 
 ## 🔗 Ссылки
-*[Смотреть трейлер](https://youtu.be/P6PazbICBhI?si=RJcXVJtabe4reSq7)
-*[X](https://x.com/ConsoleCatGame)
-*[inst](https://www.youtube.com/redirect?event=channel_description&redir_token=QUFFLUhqbVdmR09oeVFlaVFRcUlZWmpDY0VHeUdrbE1CQXxBQ3Jtc0tuemlVUnhfYWVUcTI0cms0VTBVNHp3S3lERTlTeW9KNEFWLWwzeVVlbEdhWEZCQm9FUnVBT1NoQk9QVXhiajB0Q2JSUVJ3d0N5OVZ0dGExeVFGZzA5ZmZ5c3dGbTB2dFBQY3llazM1cDJaMU1JbWg3Zw&q=https%3A%2F%2Fwww.instagram.com%2Fconsole.cat%3Figsh%3DMTl0ajkycHNvNGltaw%253D%253D%26utm_source%3Dqr)
-*[email](console_game@proton.me)
+[Смотреть трейлер](https://youtu.be/P6PazbICBhI?si=RJcXVJtabe4reSq7)
+[X](https://x.com/ConsoleCatGame)
+[inst](https://www.instagram.com/console.cat?igsh=MTl0ajkycHNvNGltaw%3D%3D&utm_source=qr) 
 
 ---
 
