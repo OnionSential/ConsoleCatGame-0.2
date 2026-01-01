@@ -40,9 +40,9 @@
 ---
 
 ## 🔗 Ссылки
-[Смотреть трейлер](https://youtu.be/P6PazbICBhI?si=RJcXVJtabe4reSq7)
-[X](https://x.com/ConsoleCatGame)
-[inst](https://www.instagram.com/console.cat?igsh=MTl0ajkycHNvNGltaw%3D%3D&utm_source=qr) 
+* [Смотреть трейлер](https://youtu.be/P6PazbICBhI?si=RJcXVJtabe4reSq7)
+* [X](https://x.com/ConsoleCatGame)
+* [inst](https://www.instagram.com/console.cat?igsh=MTl0ajkycHNvNGltaw%3D%3D&utm_source=qr) 
 
 ---
 
